@@ -1,0 +1,1 @@
+aqui va los archivos fotos o video q presentemos en la app
